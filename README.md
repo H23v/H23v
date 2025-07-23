@@ -1,4 +1,4 @@
-<h1 align="center">Hello World, I'm Chiara! (•˕ •マ.ᐟ</h1>
+<h1 align="center">Hello World, I'm ©hiara! (•˕ •マ.ᐟ</h1>
 
 ###
 
